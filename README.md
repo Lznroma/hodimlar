@@ -1,1 +1,1 @@
-# hodimlar
+# uyga vazifa
